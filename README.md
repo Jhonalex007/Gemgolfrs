@@ -1,1 +1,1 @@
-# Gemgolfrs
+Once you have <a href="https://gemgolfers.com/" target="_blank">Gemgolfers</a> installed you will not need any other app to manage any aspect of golf. Everything is available digital score cards, live leaderboards, dozens of playing formats for individual and team formats, managing golf leagues, golf association, manageing golf tours and all the members. Why not try it!# Gemgolfrs
